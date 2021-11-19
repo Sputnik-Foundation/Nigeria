@@ -6,7 +6,9 @@ The official name of the **Sputnik Foundation** in Nigeria is **Sputnik Emprowem
 
 ![news_about_registration_big_size](https://user-images.githubusercontent.com/38581319/142534536-504adef4-8ea4-4353-b95b-5d0e57bf18f8.jpg)
 
->>> Under Nigerian law, official registration of a charitable organization requires publication in an official news source
+
+> Under Nigerian law, official registration of a charitable organization requires publication in an official news source
+
 
 ## The main page of the newspaper "Blueprint" in which information about the registration of the Sputnik Emprowement Foundation
 
