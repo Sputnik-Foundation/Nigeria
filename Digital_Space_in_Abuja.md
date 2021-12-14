@@ -24,4 +24,16 @@ https://user-images.githubusercontent.com/38581319/143894484-75971845-3b41-47d4-
 
 ![photo_2021-11-29_16-20-15](https://user-images.githubusercontent.com/38581319/143894803-75baa200-f361-43d9-ad40-82eade6117da.jpg)
 
-More progress will be soon!
+## At the moment we are equipping the space for self-education Raspberry Pi 400. We have ordered 12 personal computers!
+
+![photo_2021-12-14_01-54-17](https://user-images.githubusercontent.com/38581319/145913158-62650960-189a-44ec-a46c-83737d5f7f3a.jpg)
+
+## And all of them have already been delivered!
+
+![photo_2021-12-14_01-53-52](https://user-images.githubusercontent.com/38581319/145913315-d2beee8c-1752-4c12-b9e7-46ffe2b7bd2a.jpg)
+
+![photo_2021-12-14_01-53-54](https://user-images.githubusercontent.com/38581319/145913334-896cd5a7-75d5-402e-a374-829d51cebe32.jpg)
+
+![photo_2021-12-14_01-53-56](https://user-images.githubusercontent.com/38581319/145913350-f0b90fe4-49fe-476b-98af-b34c4b7a7935.jpg)
+
+More info soon...
