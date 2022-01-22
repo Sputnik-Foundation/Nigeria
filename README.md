@@ -2,9 +2,9 @@
 
 The official name of the **Sputnik Foundation** in Nigeria is **Sputnik Emprowement Foundation**
 
-## CERTIFICATE OF INCORPORATION
+## CERTIFICATE
 
-[Sputnik_Foundation_Certificate.pdf](https://github.com/Sputnik-Foundation/Nigeria/files/7918383/Sputnik_Foundation_Certificate.pdf)
+![Sputnik_Foundation_Certificate](https://user-images.githubusercontent.com/38581319/150640090-7fca5a12-00a2-4e58-8123-1fbae2a5fa7c.png)
 
 ## Confirmation of registration of the Sputnik Emprowement Foundation in the newspaper "Blueprint"
 
