@@ -41,3 +41,12 @@ https://user-images.githubusercontent.com/38581319/143894484-75971845-3b41-47d4-
 ![photo_2022-01-19_22-19-44](https://user-images.githubusercontent.com/38581319/150215628-b2efe29d-6a07-4b91-b785-3adaa373e98c.jpg)
 
 More info soon...
+
+![photo_2022-05-31_15-33-28](https://user-images.githubusercontent.com/88537746/171186208-de2da172-69e8-4e87-bb34-8aef5ec24715.jpg)
+PS. Afew students were absent when the picture was taken.
+## The students started learning with the raspberry Pi Hand book, Scratch 3 was a good starting point as most of the students had no coding skills before enrolling in the hub.
+## The students progressed to python and completed all the tasks in the raspberry Pi and moved on to find learning avenues to help them own thier skills online. students have been exposed to Figma,Java script, HTML and go. 
+
+
+
+
