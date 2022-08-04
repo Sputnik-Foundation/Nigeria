@@ -39,6 +39,7 @@ https://user-images.githubusercontent.com/38581319/143894484-75971845-3b41-47d4-
 ## And now, everything is ready for the self-education!
 
 ![photo_2022-01-19_22-19-44](https://user-images.githubusercontent.com/38581319/150215628-b2efe29d-6a07-4b91-b785-3adaa373e98c.jpg)
+![photo_2022-08-04_15-06-17](https://user-images.githubusercontent.com/38581319/182854327-b47e972d-370b-44da-9d30-02e9d6817e75.jpg)
 
 More info soon...
 
