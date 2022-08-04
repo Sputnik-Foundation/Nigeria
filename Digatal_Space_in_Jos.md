@@ -30,3 +30,22 @@ In this space, people will get free access to Internet and hi-technologies
 
 
 ![photo_2022-03-22_16-47-38](https://user-images.githubusercontent.com/44459565/182895452-805b7874-f21c-4671-a73a-938167178b64.jpg)
+
+
+![photo_2022-03-22_16-47-30](https://user-images.githubusercontent.com/44459565/182895750-97a03c72-7e20-4db9-87cb-d96673273a5b.jpg)
+
+
+
+## That's how it was looking after few decoration was added
+
+
+![photo_2022-08-04_16-59-12](https://user-images.githubusercontent.com/44459565/182896627-39d46aa2-8020-4a0b-82df-8e62f51bf6aa.jpg)
+
+
+![photo_2022-03-25_17-59-19](https://user-images.githubusercontent.com/44459565/182896718-1ef6d65b-38d7-46cf-be45-45866a7347e0.jpg)
+
+
+![photo_2022-03-25_17-59-23](https://user-images.githubusercontent.com/44459565/182896818-2e8dc8c6-4ade-4744-b9bc-6febdca2ad23.jpg)
+
+
+![photo_2022-03-25_17-59-29](https://user-images.githubusercontent.com/44459565/182896948-a9a60c17-916c-4ff2-835f-44ccb5ebc0d2.jpg)
