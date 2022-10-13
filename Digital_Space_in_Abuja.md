@@ -35,7 +35,6 @@ https://user-images.githubusercontent.com/38581319/143894484-75971845-3b41-47d4-
 ![photo_2021-12-14_01-53-54](https://user-images.githubusercontent.com/38581319/145913334-896cd5a7-75d5-402e-a374-829d51cebe32.jpg)
 
 
-## .................................................................................. ##
 
 ![photo_2021-12-14_01-53-56](https://user-images.githubusercontent.com/38581319/145913350-f0b90fe4-49fe-476b-98af-b34c4b7a7935.jpg)
 
@@ -54,6 +53,11 @@ PS. Few students were absent when the picture was taken.
  
  The students progressed to python and completed all the tasks in the raspberry Pi and moved on to find learning avenues to help them own thier skills online. students have been exposed to Figma,Java script, HTML and go. 
 
+
+
+## .................................................................................. ##
+After a year since the Sputnik Foundation Tech hub in abuja opened and about 9 months of being opened to student, some of the students were asked to speak about thier experience at the tech hub.
+https://drive.google.com/drive/folders/1M-eTM0j1ykruyxr17kbs_eXto_h_Q4iv?usp=sharing
 
 
 
