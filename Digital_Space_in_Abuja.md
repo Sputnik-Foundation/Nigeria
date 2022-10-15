@@ -43,7 +43,13 @@ https://user-images.githubusercontent.com/38581319/143894484-75971845-3b41-47d4-
 ![photo_2022-01-19_22-19-44](https://user-images.githubusercontent.com/38581319/150215628-b2efe29d-6a07-4b91-b785-3adaa373e98c.jpg)
 ![photo_2022-08-04_15-06-17](https://user-images.githubusercontent.com/38581319/182854327-b47e972d-370b-44da-9d30-02e9d6817e75.jpg)
 
-More info soon...
+## Feedback of students
+
+https://user-images.githubusercontent.com/38581319/196004698-ba995b6d-12b6-4923-a9b6-fe5e0222a3db.mp4
+
+
+https://user-images.githubusercontent.com/38581319/196004769-c4b6b433-241d-4452-a406-9ad195ebf192.mp4
+
 
 ![photo_2022-05-31_15-33-28](https://user-images.githubusercontent.com/88537746/171186208-de2da172-69e8-4e87-bb34-8aef5ec24715.jpg)
 PS. Few students were absent when the picture was taken.
